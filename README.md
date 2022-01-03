@@ -1,1 +1,0 @@
-# abdevera.github.io
